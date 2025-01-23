@@ -7,3 +7,5 @@ Please join on discord to exchange notes with each other and other relevant mate
 Or just study together!
 
 Permanent Invite: https://discord.gg/8xRfYDbFw3
+
+Note: The lecture slides provided here are by Mr. Costas Busch. I do not claim any ownership for those slides.
